@@ -1,6 +1,6 @@
-#Indicaciones para primer informe de lectura (entrega el jueves 10 de mayo)#
+# Indicaciones para primer informe de lectura (entrega el jueves 10 de mayo) #
 
-##Orientaciones generales##
+## Orientaciones generales ##
 
 Esperamos un informe de lectura de máximo cuatro páginas (fuente de 12 puntos, interlineado de 1,5), en el que puedan dar cuenta de una lectura que ponga en relación varios de los textos leídos, alrededor de un tema o concepto. La idea es que puedan tener presente desde el poema de Bello “El campo” hasta los poemas de “Áspero” de Arráiz que comentamos, así como el ensayo de Rosenblat, aunque _no deberían hacer referencia a todos los materiales_. Entendiendo que también el descarte es parte fundamental de una lectura crítica.
 
@@ -10,7 +10,7 @@ Algunas recomendaciones formales:
 - Si hay una cita que ocupa más de dos líneas debe ir como nota al final
 - No hace falta incorporar en la bibliografía ningún ítem que esté en nuestra bibliografía compartida. Solo si incorporan un texto adicional, tendrían que referenciarlo.
 
-##Preguntas orientadoras##
+## Preguntas orientadoras ##
 
 Se les ofrecen estas preguntas orientadoras para facilitar una lectura transversal. Pueden proponer otra aproximación a riesgo propio y _no hace falta indicar qué pregunta orientadora eligieron_.
 
