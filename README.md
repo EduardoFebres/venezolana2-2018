@@ -1,3 +1,13 @@
+# Indicaciones para segundo informe de lectura (entrega el jueves 14 de junio) #
+
+Elabora un comentario de los poemas seleccionados para el segundo dossier, en máximo 100 líneas (3 páginas a espacio y medio), a partir de una de las siguientes preguntas orientadoras, con las mismas pautas formales del primer informe.
+
+1. En su manifiesto, los poetas de Viernes afirman que han "compartido muchas albas porque aprendimos a tocar las puertas de la noche". Comenta algunos puntos de convergencia y divergencia de los poetas que leímos, en las imágenes, tonos y temas elegidos para "tocar las puertas de la noche".
+
+2. Pablo Rojas Guardia poetiza (irónicamente) el "imperio universal del valor de cambio" en su poema "Moneda falsa", donde afirma que ha vendido sus sueños buenos y malos y sus "locos deseos". ¿Qué otro(s) momento(s) en los poemas leídos le dan forma poética a este patrón (contra)cultural del capitalismo?
+
+3.  En su ensayo sobre la poética de Luis Fernando Álvarez, Vicente Gerbasi caracteriza (y denuesta) la exploración poética que Álvarez hace de lo que él llama "muerte terrenal". ¿Hay en los poemas de la selección, en los otros poetas o en los mismos Gerbasi y Álvarez, una aproximación poética a la experiencia de la muerte que se diferencie de esta? 
+
 # Indicaciones para primer informe de lectura (entrega el jueves 10 de mayo) #
 
 ## Orientaciones generales ##
